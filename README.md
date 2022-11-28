@@ -1,1 +1,1 @@
-# 1-amaliy-ish
+# amaliy-ish
